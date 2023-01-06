@@ -4,6 +4,6 @@
 * 🙌 All my studyes exercises
 * 💪 My first pet project - [Now](https://github.com/d0bsson/Now) 
 
-### How to reach me: 
+### Contacts: 
 * :bell: telegram: [@d0bsson](https://t.me/d0bsson)
 * :bell: VK: [vk.com/d0bsson](https:vk.com/d0bsson)
